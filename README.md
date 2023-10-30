@@ -19,4 +19,5 @@ Or keep an eye out for our notice in an upcoming issue of Silicon Chip and DIYOD
 Otherwise, have fun and make something!
 
 sincerely,
+
 John Boxall
