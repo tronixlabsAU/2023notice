@@ -4,6 +4,9 @@ Our clearance store is taking a break while we change to a new store cart system
 
 If you are an existing Tronixlabs customer and require technical or warranty support - I'm still here to help you, simply email support@tronixlabs.com.
 
+If you are in Australia and would like to buy a copy or two of one of my books - which is a great idea - please email support@tronxilabs.com
+and we'll sort it out very quickly.
+
 Follow us on facebook, x/twitter, and/or instagram using:
 
 https://www.facebook.com/tronixlabs
