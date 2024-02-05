@@ -4,6 +4,8 @@ Our clearance store is taking a break while we change to a new store cart system
 
 If you are an existing Tronixlabs customer and require technical or warranty support - I'm still here to help you, simply email support@tronixlabs.com.
 
+Our larger international electronics store, however, is open and growing like mad. Check it out! https://nostarch.com/search/boxall Send us an email saying you found it from github and I'll send you a discount coupon!
+
 If you are in Australia and would like to buy a copy or two of one of my books (https://nostarch.com/search/boxall) - which is a great idea - please email support@tronixlabs.com
 and we'll sort it out very quickly.
 
