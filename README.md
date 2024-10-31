@@ -1,4 +1,5 @@
 Hello!
+[Updated November 2024]
 
 Our retail store is taking a break for a while.
 If you are an existing Tronixlabs customer and require technical or warranty support - we're still here to help you, simply email support@tronixlabs.com.
