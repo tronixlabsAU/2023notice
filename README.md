@@ -6,15 +6,15 @@ If you are an existing Tronixlabs customer and require technical or warranty sup
 Our larger international electronics store, however, is open and growing like mad. Check it out! https://pmdway.com Send us an email saying you found it from github and I'll send you a discount coupon!
 
 If you are in Australia and would like to buy a copy or two of one of my books (https://nostarch.com/search/boxall) - which is a great idea - please email support@tronixlabs.com
-and we'll sort it out very quickly.
+and we'll sort it out very quickly. 
 
 Follow us on facebook, x/twitter, and/or instagram using:
 
-https://www.facebook.com/tronixlabs
+[https://www.facebook.com/tronixlabs](https://www.facebook.com/tronixlabs)
 
-https://twitter.com/tronixlabs
+[https://twitter.com/tronixlabs](https://x.com/tronixlabs)
 
-https://www.instagram.com/tronixlabs
+[https://www.instagram.com/tronixlabs](https://www.instagram.com/tronixlabs)
 
 ... and you'll find out when we're back. 
 
