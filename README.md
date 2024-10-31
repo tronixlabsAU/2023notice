@@ -18,10 +18,10 @@ Follow us on facebook, x/twitter, and/or instagram using:
 
 ... and you'll find out when we're back. 
 
-Or keep an eye out for our notice in an upcoming issue of Silicon Chip magazine. 
+Or keep an eye out for our notice in an upcoming issue of [Silicon Chip magazine](https://www.siliconchip.com.au/). 
 
 Otherwise, have fun and make something!
 
 sincerely,
 
-John Boxall
+John Boxall VK4JBX
