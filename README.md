@@ -2,7 +2,7 @@ April, 2025
 
 Hello!
 
-Our retail store is taking a break for a while. However it should be back in May. 
+Our retail store is taking a break for a while. 
 If you are an existing Tronixlabs customer and require technical or warranty support - we're still here to help you, simply email support@tronixlabs.com.
 
 Our larger international electronics store, however, is open and growing like mad. Check it out now >> https://pmdway.com. Send us an email saying you found it from github and I'll send you a discount coupon.
