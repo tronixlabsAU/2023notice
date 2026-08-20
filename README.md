@@ -14,11 +14,11 @@ Follow us on social media using:
 
 [https://www.facebook.com/tronixlabs](https://www.facebook.com/tronixlabs)
 
-https://bsky.app/profile/tronixlabs.bsky.social
-
 [https://twitter.com/tronixlabs](https://x.com/tronixlabs)
 
 [https://www.instagram.com/tronixlabs](https://www.instagram.com/tronixlabs)
+
+[https://topicle.com/t/tronixlabs](https://topicle.com/t/tronixlabs)
 
 ... and you'll find out what we're up to, and when the Australian retail store is back. 
 
